@@ -3,10 +3,10 @@
 
 ### Welcome, I'm Marcelo
   
-💼 I’m currently looking for a job! </br>
-👨‍🎓 I'm studying at Generation Brasil, and FATEC-ZS </br>
+💼 I’m currently working with Java </br>
+👨‍🎓  Studying at FATEC-ZS (5/6) </br>
 🧔 He/Ele </br>
-🎮 Tibia, League of Legends </br>
+🎮 Tibia </br>
 🚩 São Paulo-SP BR </br>
 📩 Find me on ⏬
  
