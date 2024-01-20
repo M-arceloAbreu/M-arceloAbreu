@@ -4,7 +4,7 @@
 ### Welcome, I'm Marcelo
   
 💼 I’m currently working with Java </br>
-👨‍🎓  Studying at FATEC-ZS (5/6) </br>
+👨‍🎓  Graduated at FATEC-ZS (5/6) </br>
 🧔 He/Ele </br>
 🎮 Tibia </br>
 🚩 São Paulo-SP BR </br>
